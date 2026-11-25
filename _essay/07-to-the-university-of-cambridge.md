@@ -29,7 +29,7 @@ nbsp WHILE an intrinsic ardor prompts to write,
 <br>And share with him in the sublimest skies,
 <br>Life without death, and glory without end.
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Improve your privileges while they stay,
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Improve your privileges while they stay,
 <br>Ye pupils, and each hour redeem, that bears
 <br>Or good or bad report of you to heav’n.
 <br>Let sin, that baneful evil to the soul,
